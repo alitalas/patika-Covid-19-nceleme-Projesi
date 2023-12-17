@@ -1,0 +1,1 @@
+# patika-Covid-19-nceleme-Projesi
